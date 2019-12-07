@@ -13,11 +13,11 @@ This sites provides free printable funeral program templates.
 - address: [myfuneralprogram.com](http://myfuneralprogram.com/)
 
 ### [Free Printable Funeral Program Templates](http://dying.lovetoknow.com/Free_Funeral_Program_Template)
-- XY free funeral programs
+- 2 free funeral programs
 - address: [http://dying.lovetoknow.com/Free_Funeral_Program_Template](http://dying.lovetoknow.com/Free_Funeral_Program_Template)
 
 ### [Elegantflyer](https://www.elegantflyer.com/category/free-funeral-program-templates/)
-- XY free funeral programs
+- 18 free funeral programs
 - address: [https://www.elegantflyer.com/category/free-funeral-program-templates/](https://www.elegantflyer.com/category/free-funeral-program-templates/)
 
 ## Lists
